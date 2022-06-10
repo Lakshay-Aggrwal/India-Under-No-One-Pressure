@@ -1,2 +1,2 @@
 # India Under No-One's Pressure 
- Trying To Bring out Facts on what India do for world and nobody can control or influence our internal affairs.
+ Hard and Brutal facts that depicts what India has been doing for countries, No one is now can influence, Intervene or change our any internal affairs.
